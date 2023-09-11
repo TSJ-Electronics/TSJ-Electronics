@@ -6,7 +6,7 @@
 - DEATH RAY, If your interested in building a facial recognition death ray to obliterate lego people hit me up.
 - 
 - 📫 How to reach me ...
-- - You can reach me at: TSJelectronics.gmail.com
+- - You can reach me at: TSJelectronics@gmail.com
   - WEBSITE & SOCIALS: https://linktr.ee/tsj_electronics
 
 <!---
